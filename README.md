@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JamesLaurence
+- 👀 I’m interested in anime girls
+- 🌱 I’m currently learning how to talk to female species
+- 📫 How to reach me Geоrge#0001
